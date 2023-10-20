@@ -19,9 +19,3 @@ Bütün kullanıcılarda Öğrenim menüsü var.
 3 ündede farklı özellikler var.
 Daha çok oraları kontrol edebilirsiniz.
 
-
-
-
-PROJE VİEDOSU
-YOUTUBE LİNK: https://www.youtube.com/watch?v=0ObgmIp_WOU
-DRİVE LİNK: https://drive.google.com/file/d/1tfBiMTUFAsPy-gY21t3pBEjmiqRSOiKu/view?usp=sharing
